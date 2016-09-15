@@ -61,10 +61,10 @@
 [For more information about women in the American Revolution please visit History of American Women.](http://www.womenhistoryblog.com/2009/02/daughters-of-liberty.html)
 
 ## Chapter 8: The Conspiracy of Edward and Catherine Despard
-This chapter acts as a case study of Edward Despard whose life consisted of many transatlanctic connections
-Despard moved across the Atlantic spending time and Jamaica, Nicaragua and Belize.
-Eventually he meets his wife Catherine, a former slave. They go to London where Despard is imprisoned
-While in prison Despard meets co conspirators who form a motley crew that Rediker an Linebaugh mention throughout the book 
+*This chapter acts as a case study of Edward Despard whose life consisted of many transatlanctic connections
+*Despard moved across the Atlantic spending time and Jamaica, Nicaragua and Belize.
+*Eventually he meets his wife Catherine, a former slave. They go to London where Despard is imprisoned
+*While in prison Despard meets co conspirators who form a motley crew that Rediker an Linebaugh mention throughout the book 
 
 
 ## Chapter 9: Robert Wedderburn and Atlantic Jubilee
