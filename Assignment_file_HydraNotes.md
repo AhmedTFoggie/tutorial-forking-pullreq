@@ -52,7 +52,7 @@
 1. The first definition refers to an organized gang of workers.
 2. The Second definition is the sociopolitical formation of the port or town.
 * Combined, these definitions demonstrates the dynamic of the motley crew of the American Revolution which was a multi-ethnic collective that was composed of both sailors and slaves who fought together against the stamp acts and impressment. Both groups created a mob which increased in size as other working class peoples joined in.
-* Sailors and slaves were prime movers in the cycle of rebellion because they were part of a migratory pattern that could carry word of  rebellions from other parts of the empire to North America.
+* Sailors and slaves were prime movers in the cycle of rebellion because theyd were part of a migratory pattern that could carry word of  rebellions from other parts of the empire to North America.
 * In the picture above many members of the motley crew can be identified which includes a sailor, a slave, a woman, a craftsman, and perhaps a farmer.
 * The elites of society, however, did not agree with this radical bottom up vision of the nation and intervened. The elites were able to take control of the revolution, and after the battles had been won, were able to subjugate the motley crew back into its "desired" social statues.
 
@@ -61,6 +61,10 @@
 [For more information about women in the American Revolution please visit History of American Women.](http://www.womenhistoryblog.com/2009/02/daughters-of-liberty.html)
 
 ## Chapter 8: The Conspiracy of Edward and Catherine Despard
+This chapter acts as a case study of Edward Despard whose life consisted of many transatlanctic connections
+Despard moved across the Atlantic spending time and Jamaica, Nicaragua and Belize.
+Eventually he meets his wife Catherine, a former slave. They go to London where Despard is imprisoned
+While in prison Despard meets co conspirators who form a motley crew that Rediker an Linebaugh mention throughout the book 
 
 
 ## Chapter 9: Robert Wedderburn and Atlantic Jubilee
